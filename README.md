@@ -1,1 +1,1 @@
-# Cyber-Security-Awareness
+# Cyber Security Awareness
